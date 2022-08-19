@@ -1,1 +1,0 @@
-# artist_tate2xwq74
